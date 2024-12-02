@@ -1,1 +1,2 @@
-🤖 of [delichik](https://github.com/delichik)
+
+[delichik](https://github.com/delichik)’s 🤖
